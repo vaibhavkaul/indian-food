@@ -1,0 +1,28 @@
+## Chana Daal: Split Pea Daal (best consumed with rice)
+
+- [ ] Dice about 1/2 a large onion or 1 medium Onion
+- [ ] Dice 1 Large Tomato or 2 medium/small
+- [ ] 2 Cups of Daal, should be washed before
+- [ ] Put the pressure cooker (open) on the flame (Full flame)
+- [ ] Put in about 2 tablespoons of veg oil
+- [ ] once its a little bit hot, Put in some minced garlic (2 cloves)
+- [ ] Drop dem onions in
+- [ ] Then drop in the tomato
+- [ ] Sprinkle a little bit of salt on the tomatos once you drop them in (now goto medium heat after abotu a minute)
+- [ ] Drop in the daal
+- [ ] Now, stir it a little bit with the mixture already in the pressure cooker (30-45 seconds)
+- [ ] 5 Cups of water (should be an inch above the mixture)
+- [ ] 1/2 Tea Spoon (flat) of cumin powder
+- [ ] 1 Tea Spoon (flat) of Coriander
+- [ ] 1 Tea Spoon of Turmeric (put more if mixture is not sufficiently yellow) (put upto 1/2 more if color doesnt seem perfect)
+- [ ] 3/4 Tea spoon (flat) of salt (add more later to taste if you need)
+- [ ] Put in 1 Tea Spoon of Chana Masala
+- [ ] Mix well, and bring to a boil (goto high flame)
+- [ ] When its boiling, close the lid (be careful bring heat down)
+- [ ] heat shold be high at this point
+- [ ] Wait for 4 whistles
+- [ ] Now lower head to about 20% of max
+- [ ] Leave the pressure cooker alone for 9-10 mins
+- [ ] Turn the heat off
+- [ ] Let the cooker de presurrize on its own (atleast 10-15 mins)
+- [ ] You should be done
