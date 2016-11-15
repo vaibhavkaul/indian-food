@@ -21,7 +21,7 @@
 - [ ] When its boiling, close the lid (be careful bring heat down)
 - [ ] heat shold be high at this point
 - [ ] Wait for 4 whistles
-- [ ] Now lower head to about 20% of max
+- [ ] Now lower heat to about 20% of max
 - [ ] Leave the pressure cooker alone for 9-10 mins
 - [ ] Turn the heat off
 - [ ] Let the cooker de presurrize on its own (atleast 10-15 mins)
